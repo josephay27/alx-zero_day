@@ -1,1 +1,1 @@
-My first readme
+Our God is awesome
